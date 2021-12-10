@@ -1,4 +1,4 @@
-- 👋 Hey there, I’m @Mans
+- 👋 Hey there, I’m @Mansi.
 - 👀 I’m interested in everything.
 - 🌱 I’m currently learning nothing.
 - 💞️ I’m looking to collaborate on something.
